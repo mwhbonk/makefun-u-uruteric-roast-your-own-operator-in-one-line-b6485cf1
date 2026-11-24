@@ -1,0 +1,1 @@
+# makefun-u-uruteric-roast-your-own-operator-in-one-line-b6485cf1
